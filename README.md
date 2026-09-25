@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **imamghazali.ece@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently pursuing B.E on ECE:**
+- 🔭 **I’m currently pursuing B.E on ECE:** 
 - 🌱 **I’m currently learning:** Computer languages
 - 📫 **How to reach me:** imamghazali.ece@gmail.com
 - 😄 **Pronouns:** Imam
